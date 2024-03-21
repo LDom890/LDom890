@@ -5,7 +5,6 @@
 
 ---
 
-![Image](https://cdn.pixabay.com/photo/2019/02/05/10/21/skull-3976564_1280.jpg)
 
 
 
